@@ -2,8 +2,7 @@
 
 |Năm|LĐTT|CSTĐCS|BKUBNNT|BKTT|HCLĐ hạng 3|Điển hình tiên tiến|
 |-- |--  |--    |--     |--  |--         |--                 |
-|2025||||||[Điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EW9qikjHJNtLgUUQc9LqzB0BrDzncgmUYFw_NiPdDjqnxw?e=fz0pGU) Giấy khen SYT Theo Qđ số 553/QĐ-SYT ngày 02 tháng 4 năm 2025
- của GĐ SYT Cà Mau|
+|2025||||||[Điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EW9qikjHJNtLgUUQc9LqzB0BrDzncgmUYFw_NiPdDjqnxw?e=fz0pGU) Giấy khen SYT Theo Qđ số 553/QĐ-SYT ngày 02 tháng 4 năm 2025 của GĐ SYT Cà Mau|
 |2024|[x]()|[x]()|
 |2023|[x]()|
 |2022|[x]()|[x]()|
