@@ -3,9 +3,9 @@
 |Năm|LĐTT|CSTĐCS|BKUBNNT|BKTT|HCLĐ hạng 3|Điển hình tiên tiến|
 |-- |--  |--    |--     |--  |--         |--                 |
 |2025||||||[Điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EW9qikjHJNtLgUUQc9LqzB0BrDzncgmUYFw_NiPdDjqnxw?e=fz0pGU) Giấy khen SYT Theo Qđ số 553/QĐ-SYT ngày 02 tháng 4 năm 2025 của GĐ SYT Cà Mau|
-|2024|[x]()|[x]()||||**LĐTT** Qđ số 284/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 285/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau
-|2023|[x]()|||||**LĐTT** Qđ số 571/QĐ-SYT ngày 06 tháng 3 năm 2024 của GĐ SYT Cà Mau
-|2022|[x]()|[x]()|
+|2024|[x]()|[x]()||||**LĐTT** Qđ số 284/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 285/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau.
+|2023|[x]()|||||**LĐTT** Qđ số 571/QĐ-SYT ngày 06 tháng 3 năm 2024 của GĐ SYT Cà Mau.
+|2022|[x]()|[x]()||||**LĐTT** Qđ số 349/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 348/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau.
 |2021|[x]()|[x]()|[x]()|
 |2020|[x]()|[x]()||[x]()|
 |2019|[x]()|[x]()|[x]()|
