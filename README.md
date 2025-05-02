@@ -49,7 +49,7 @@
 - 2008: Hoàn thành xuất sắc nhiệm vụ
 - 2007: Hoàn thành xuất sắc nhiệm vụ
 - 2006: Hoàn thành tốt nhiệm vụ
-- 2005: Hoàn thành nhiệm vụ
+- 2005: Hoàn thành nhiệm vụ (C cả năm)
 - 2004: Hoàn thành tốt nhiệm vụ
 - 2003: Hoàn thành tốt nhiệm vụ
 - 2002: Hoàn thành tốt nhiệm vụ
