@@ -18,9 +18,9 @@
 |2012|[x]()|
 |2011|[x]()|
 |2010|[x]()|[x]()||||**LĐTT** Qđ số .../QĐ-SYT ngày 11 tháng 7 năm 2011 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 16/QĐ-SYT ngày 11 tháng 7 năm 2011 của GĐ SYT Cà Mau
-|2009|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 144/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 145/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 376/QĐ-UBND ngày 09 tháng 3 năm 2018 của CT UBND Tỉnh Cà Mau
-|2008|[x]()|[x]()||||**LĐTT** Qđ số 38/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 39/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau
-|2007|[x]()|[x]()||||**LĐTT** Qđ số 38/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 39/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau
+|2009|[x]()|[x]()|[x]()|||**LĐTT** Qđ số .../QĐ-SYT ngày 14 tháng 01 năm 2010 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 13/QĐ-SYT ngày 14 tháng 01 năm 2010 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 403/QĐ-UBND ngày 16 tháng 3 năm 2010 của CT UBND Tỉnh Cà Mau
+|2008|[x]()|[x]()||||**LĐTT** Qđ số .../QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 13/QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau
+|2007|[x]()|[x]()||||**LĐTT** Qđ số .../QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 02/QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau
 |2006|[x]()|
 |2005|[x]()|
 |2004|[x]()|
