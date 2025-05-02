@@ -22,7 +22,7 @@
 |2008|[x]()|[x]()||||**LĐTT** Qđ số 12/QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 13/QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau
 |2007|[x]()|[x]()||||**LĐTT** Qđ số 01/QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 02/QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau
 |2006|[x]()|
-|2005|                 |||||Ở Xã Tân Đức về, không đạt được gì cả
+|2005|                 |||||Ở Xã Tân Đức về, không đạt được gì cả, thời 3 Quang là Tp HCTCCB, xử C cả năm 2005
 |2004|[x]()|
 |2003|[x]()|
 |2002|[x]()|
