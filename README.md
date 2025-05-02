@@ -35,5 +35,24 @@
 - 2022: Hoàn thành xuất sắc nhiệm vụ, , theo Quyết định số 172/SYT-TCHC ngày 12 tháng 01 năm 2023 của Giám đốc SYT Cà Mau.
 - 2021: Hoàn thành xuất sắc nhiệm vụ, theo Quyết định số 122/SYT-TCHC ngày 08 tháng 01 năm 2022 của Giám đốc SYT Cà Mau.
 - 2020: Hoàn thành xuất sắc nhiệm vụ, theo Quyết định số 395/SYT-TCHC ngày 03 tháng 02 năm 2021 của Giám đốc SYT Cà Mau.
+- 2019: Hoàn thành xuất sắc nhiệm vụ
+- 2018: Hoàn thành xuất sắc nhiệm vụ
+- 2017: Hoàn thành xuất sắc nhiệm vụ
+- 2016: Hoàn thành xuất sắc nhiệm vụ
+- 2015:
+- 2014:
+- 2013:
+- 2012:
+- 2011:
+- 2010:
+- 2009:
+- 2008:
+- 2007:
+- 2006:
+- 2005:
+- 2004:
+- 2003:
+- 2002:
+- 2001:
 
   
