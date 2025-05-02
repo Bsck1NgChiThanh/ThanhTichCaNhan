@@ -27,3 +27,13 @@
 |2003|[x]()|
 |2002|[x]()|
 |2001|[x]()|
+
+# Đánh giá viên chức:
+- 2025:
+- 2024: Hoàn thành xuất sắc nhiệm vụ, theo Thông báo số 118/TB-SYT ngày 17 tháng 12 năm 2024 của Giám đốc SYT Cà Mau.
+- 2023: Hoàn thành tốt nhiệm vụ, theo Quyết định số 5083/SYT-TCHC ngày 25 tháng 12 năm 2023 của Giám đốc SYT Cà Mau.
+- 2022: Hoàn thành xuất sắc nhiệm vụ, , theo Quyết định số 172/SYT-TCHC ngày 12 tháng 01 năm 2023 của Giám đốc SYT Cà Mau.
+- 2021: Hoàn thành xuất sắc nhiệm vụ, theo Quyết định số 122/SYT-TCHC ngày 08 tháng 01 năm 2022 của Giám đốc SYT Cà Mau.
+- 2020: Hoàn thành xuất sắc nhiệm vụ, theo Quyết định số 395/SYT-TCHC ngày 03 tháng 02 năm 2021 của Giám đốc SYT Cà Mau.
+
+  
