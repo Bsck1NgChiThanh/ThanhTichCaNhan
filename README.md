@@ -11,8 +11,8 @@
 |2019|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 1671/QĐ-SYT ngày 26 tháng 3 năm 2020 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 1672/QĐ-SYT ngày 26 tháng 3 năm 2020 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 777/QĐ-UBND ngày 13 tháng 5 năm 2020 của CT UBND Tỉnh Cà Mau
 |2018|[x]()|[x]()||||**LĐTT** Qđ số 60/QĐ-SYT ngày 25 tháng 01 năm 2019 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 61/QĐ-SYT ngày 25 tháng 01 năm 2019 của GĐ SYT Cà Mau
 |2017|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 144/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 145/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 376/QĐ-UBND ngày 09 tháng 3 năm 2018 của CT UBND Tỉnh Cà Mau
-|2016|[x]()|[x]()|
-|2015|[x]()|
+|2016|[x]()|[x]()||||**LĐTT** Qđ số 38/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 39/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau
+|2015|[x]()|||||**LĐTT** Qđ số 44/QĐ-SYT ngày 27 tháng 01 năm 2016 của GĐ SYT Cà Mau
 |2014|[x]()|
 |2013|[x]()|
 |2012|[x]()|
