@@ -7,7 +7,7 @@
 |2023|[x]()|||||**LĐTT** Qđ số 571/QĐ-SYT ngày 06 tháng 3 năm 2024 của GĐ SYT Cà Mau.
 |2022|[x]()|[x]()||||**LĐTT** Qđ số 349/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 348/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau.
 |2021|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 599/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 600/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 1736/QĐ-UBND ngày 12 tháng 7 năm 2022 của CT UBND Tỉnh Cà Mau
-|2020|[x]()|[x]()||[x]()||LĐTT Qđ số 599/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau; CSTĐCS Qđ số 600/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau, BKUBND Tỉnh Qđ số 1736/QĐ-UBND ngày 12 tháng 7 năm 2022 của CT UBND Tỉnh Cà Mau
+|2020|[x]()|[x]()||[x]()||LĐTT Qđ số 553/QĐ-SYT ngày 23 tháng 3 năm 2021 của GĐ SYT Cà Mau; CSTĐCS Qđ số 554/QĐ-SYT ngày 23 tháng 3 năm 2021 của GĐ SYT Cà Mau, BKTT Qđ số 1853/QĐ-TTg ngày 03 tháng 11 năm 2021 của Thủ tướng Chính phủ
 |2019|[x]()|[x]()|[x]()|
 |2018|[x]()|[x]()|
 |2017|[x]()|[x]()|[x]()|
