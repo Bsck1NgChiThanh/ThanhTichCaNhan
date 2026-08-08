@@ -2,7 +2,7 @@
 
 |Năm|LĐTT|CSTĐCS|BKUBNDT|BKTT|HCLĐ hạng 3|Điển hình tiên tiến|
 |-- |--  |--    |--     |--  |--         |--                 |
-|2025|x|x|||x|[Điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EW9qikjHJNtLgUUQc9LqzB0BrDzncgmUYFw_NiPdDjqnxw?e=fz0pGU) Giấy khen SYT Theo Qđ số 553/QĐ-SYT ngày 02 tháng 4 năm 2025 của GĐ SYT Cà Mau; Quyết định số 489/QĐ-SYT ngày 24 tháng 02 năm 2026 của Giám đốc Sở Y tế Cà Mau.|
+|2025|x|x|||x|[Điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EW9qikjHJNtLgUUQc9LqzB0BrDzncgmUYFw_NiPdDjqnxw?e=fz0pGU) Giấy khen SYT Theo Qđ số 553/QĐ-SYT ngày 02 tháng 4 năm 2025 của GĐ SYT Cà Mau; LĐTT Qđịnh số 486/QĐ-SYT  ngày 24 tháng 02 năm 2026; CSTĐCS Quyết định số 489/QĐ-SYT ngày 24 tháng 02 năm 2026 của Giám đốc Sở Y tế Cà Mau. THẦY THUỐC ƯU TÚ|
 |2024|[x]()|[x]()||||**LĐTT** Qđ số 284/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 285/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau.
 |2023|[x]()|||||**LĐTT** Qđ số 571/QĐ-SYT ngày 06 tháng 3 năm 2024 của GĐ SYT Cà Mau.
 |2022|[x]()|[x]()||||**LĐTT** Qđ số 349/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 348/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau.
@@ -29,7 +29,7 @@
 |2001|[x]()|
 
 # Đánh giá viên chức:
-- 2025:
+- 2025: HTTNV Thông báo số 96/TB-BV ngày 09/12/2025 của Giám đốc Bệnh viện đa khoa Đầm Dơi, Sở Y tế tỉnh Cà Mau.
 - 2024: Hoàn thành xuất sắc nhiệm vụ, theo Thông báo số 118/TB-SYT ngày 17 tháng 12 năm 2024 của Giám đốc SYT Cà Mau; Quyết định số 217/QĐ-BV ngày 18/12/ 2024 của Giám đốc Bệnh viện Đa khoa Đầm Dơi
 - 2023: Hoàn thành tốt nhiệm vụ, theo Quyết định số 5083/SYT-TCHC ngày 25 tháng 12 năm 2023 của Giám đốc SYT Cà Mau.
 - 2022: Hoàn thành xuất sắc nhiệm vụ, , theo Quyết định số 172/SYT-TCHC ngày 12 tháng 01 năm 2023 của Giám đốc SYT Cà Mau.
