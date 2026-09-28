@@ -1,28 +1,28 @@
 # Thành tích cá nhân của Bs Thành
 
-|Năm|LĐTT|CSTĐCS|BKUBNDT|BKTT|HCLĐ hạng 3|Điển hình tiên tiến|
-|-- |--  |--    |--     |--  |--         |--                 |
-|2025|x|x|||x|[Điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EW9qikjHJNtLgUUQc9LqzB0BrDzncgmUYFw_NiPdDjqnxw?e=fz0pGU) Giấy khen SYT Theo Qđ số 553/QĐ-SYT ngày 02 tháng 4 năm 2025 của GĐ SYT Cà Mau; LĐTT Qđịnh số 486/QĐ-SYT  ngày 24 tháng 02 năm 2026; CSTĐCS Quyết định số 489/QĐ-SYT ngày 24 tháng 02 năm 2026 của Giám đốc Sở Y tế Cà Mau. THẦY THUỐC ƯU TÚ|
-|2024|[x]()|[x]()||||**LĐTT** Qđ số 284/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 285/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau.
-|2023|[x]()|||||**LĐTT** Qđ số 571/QĐ-SYT ngày 06 tháng 3 năm 2024 của GĐ SYT Cà Mau.
-|2022|[x]()|[x]()||||**LĐTT** Qđ số 349/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 348/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau.
-|2021|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 599/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 600/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 1736/QĐ-UBND ngày 12 tháng 7 năm 2022 của CT UBND Tỉnh Cà Mau
-|2020|[x]()|[x]()||[x]()||**LĐTT** Qđ số 553/QĐ-SYT ngày 23 tháng 3 năm 2021 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 554/QĐ-SYT ngày 23 tháng 3 năm 2021 của GĐ SYT Cà Mau, **BKTT** Qđ số 1853/QĐ-TTg ngày 03 tháng 11 năm 2021 của Thủ tướng Chính phủ
-|2019|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 1671/QĐ-SYT ngày 26 tháng 3 năm 2020 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 1672/QĐ-SYT ngày 26 tháng 3 năm 2020 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 777/QĐ-UBND ngày 13 tháng 5 năm 2020 của CT UBND Tỉnh Cà Mau
-|2018|[x]()|[x]()||||**LĐTT** Qđ số 60/QĐ-SYT ngày 25 tháng 01 năm 2019 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 61/QĐ-SYT ngày 25 tháng 01 năm 2019 của GĐ SYT Cà Mau
-|2017|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 144/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 145/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 376/QĐ-UBND ngày 09 tháng 3 năm 2018 của CT UBND Tỉnh Cà Mau
-|2016|[x]()|[x]()||||**LĐTT** Qđ số 38/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 39/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau
-|2015|[x]()|||||**LĐTT** Qđ số 44/QĐ-SYT ngày 27 tháng 01 năm 2016 của GĐ SYT Cà Mau
+|Năm|LĐTT|CSTĐCS|BKUBNDT|BKTT|HCLĐ hạng 3|Kỷ niệm chương|Thầy thuốc ưu tú|Điển hình tiên tiến|
+|-- |--  |--    |--     |--  |--         |--            |--              |--                 |
+|2025|x|x|||x|x|x|[Điển hình TT giai đoạn 2020-2025](https://bsthanh-my.sharepoint.com/:w:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EW9qikjHJNtLgUUQc9LqzB0BrDzncgmUYFw_NiPdDjqnxw?e=fz0pGU) Giấy khen SYT Theo Qđ số 553/QĐ-SYT ngày 02 tháng 4 năm 2025 của GĐ SYT Cà Mau; LĐTT Qđịnh số 486/QĐ-SYT  ngày 24 tháng 02 năm 2026; CSTĐCS Quyết định số 489/QĐ-SYT ngày 24 tháng 02 năm 2026 của Giám đốc Sở Y tế Cà Mau. [Kỷ niệm chương vì sức khỏe nhân dân Số 3006/QĐ-BYT ngày 25/9/2026](https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=drive_link). THẦY THUỐC ƯU TÚ|
+|2024|[x]()|[x]()||||||**LĐTT** Qđ số 284/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 285/QĐ-SYT ngày 27 tháng 02 năm 2025 của GĐ SYT Cà Mau.
+|2023|[x]()|||||||**LĐTT** Qđ số 571/QĐ-SYT ngày 06 tháng 3 năm 2024 của GĐ SYT Cà Mau.
+|2022|[x]()|[x]()||||||**LĐTT** Qđ số 349/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 348/QĐ-SYT ngày 06 tháng 3 năm 2023 của GĐ SYT Cà Mau.
+|2021|[x]()|[x]()|[x]()|||||**LĐTT** Qđ số 599/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 600/QĐ-SYT ngày 25 tháng 3 năm 2022 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 1736/QĐ-UBND ngày 12 tháng 7 năm 2022 của CT UBND Tỉnh Cà Mau
+|2020|[x]()|[x]()||[x]()||||**LĐTT** Qđ số 553/QĐ-SYT ngày 23 tháng 3 năm 2021 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 554/QĐ-SYT ngày 23 tháng 3 năm 2021 của GĐ SYT Cà Mau, **BKTT** Qđ số 1853/QĐ-TTg ngày 03 tháng 11 năm 2021 của Thủ tướng Chính phủ
+|2019|[x]()|[x]()|[x]()|||||**LĐTT** Qđ số 1671/QĐ-SYT ngày 26 tháng 3 năm 2020 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 1672/QĐ-SYT ngày 26 tháng 3 năm 2020 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 777/QĐ-UBND ngày 13 tháng 5 năm 2020 của CT UBND Tỉnh Cà Mau
+|2018|[x]()|[x]()||||||**LĐTT** Qđ số 60/QĐ-SYT ngày 25 tháng 01 năm 2019 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 61/QĐ-SYT ngày 25 tháng 01 năm 2019 của GĐ SYT Cà Mau
+|2017|[x]()|[x]()|[x]()|||||**LĐTT** Qđ số 144/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 145/QĐ-SYT ngày 06 tháng 02 năm 2018 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 376/QĐ-UBND ngày 09 tháng 3 năm 2018 của CT UBND Tỉnh Cà Mau
+|2016|[x]()|[x]()||||||**LĐTT** Qđ số 38/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 39/QĐ-SYT ngày 23 tháng 01 năm 2017 của GĐ SYT Cà Mau
+|2015|[x]()|||||||**LĐTT** Qđ số 44/QĐ-SYT ngày 27 tháng 01 năm 2016 của GĐ SYT Cà Mau
 |2014|[x]()|
 |2013|[x]()|
 |2012|[x]()|
 |2011|[x]()|
-|2010|[x]()|[x]()||||**LĐTT** Qđ số 15/QĐ-SYT ngày 11 tháng 7 năm 2011 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 16/QĐ-SYT ngày 11 tháng 7 năm 2011 của GĐ SYT Cà Mau
-|2009|[x]()|[x]()|[x]()|||**LĐTT** Qđ số 12/QĐ-SYT ngày 14 tháng 01 năm 2010 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 13/QĐ-SYT ngày 14 tháng 01 năm 2010 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 403/QĐ-UBND ngày 16 tháng 3 năm 2010 của CT UBND Tỉnh Cà Mau
-|2008|[x]()|[x]()||||**LĐTT** Qđ số 12/QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 13/QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau
-|2007|[x]()|[x]()||||**LĐTT** Qđ số 01/QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 02/QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau
+|2010|[x]()|[x]()||||||**LĐTT** Qđ số 15/QĐ-SYT ngày 11 tháng 7 năm 2011 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 16/QĐ-SYT ngày 11 tháng 7 năm 2011 của GĐ SYT Cà Mau
+|2009|[x]()|[x]()|[x]()|||||**LĐTT** Qđ số 12/QĐ-SYT ngày 14 tháng 01 năm 2010 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 13/QĐ-SYT ngày 14 tháng 01 năm 2010 của GĐ SYT Cà Mau, **BKUBND Tỉnh** Qđ số 403/QĐ-UBND ngày 16 tháng 3 năm 2010 của CT UBND Tỉnh Cà Mau
+|2008|[x]()|[x]()||||||**LĐTT** Qđ số 12/QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 13/QĐ-SYT ngày 13 tháng 01 năm 2009 của GĐ SYT Cà Mau
+|2007|[x]()|[x]()||||||**LĐTT** Qđ số 01/QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau; **CSTĐCS** Qđ số 02/QĐ-SYT ngày 12 tháng 02 năm 2008 của GĐ SYT Cà Mau
 |2006|[x]()|
-|2005|                 |||||Ở Xã Tân Đức về, không đạt được gì cả, thời 3 Quang làm Tp HC-TCCB, xử C cả năm 2005, đành chịu (cái giá phải trả vậy là cũng được)
+|2005|                 |||||||Ở Xã Tân Đức về, không đạt được gì cả, thời 3 Quang làm Tp HC-TCCB, xử C cả năm 2005, đành chịu (cái giá phải trả vậy là cũng được)
 |2004|[x]()|
 |2003|[x]()|
 |2002|[x]()|
